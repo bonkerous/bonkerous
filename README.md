@@ -1,6 +1,10 @@
 ## joey bonerous
-17yo moron who can't finish a single project
+17yo moron
+
+can't finish a single project
+
 i know some python, php
+
 i wanna learn c
 
 pronoinz: she/her/ze/zher/banana/airpodspro
